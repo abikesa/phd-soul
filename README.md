@@ -1,1 +1,1 @@
-# phd-soul
+But what happens when the epistemic architecture no longer has a tether to embodiment? This is the problem of late financial capitalism, but also of late philosophy: the proliferation of derivatives without referents, of rituals without contact, of epistemologies that forget their ontological womb. Decoupling becomes not a computational strategy, but a [metaphysical pathology](https://abikesa.github.io/ukubona/insalata/articles/einstein.html#toc).
